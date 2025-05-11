@@ -20,10 +20,7 @@
 - Game or anime-inspired apps
 
 ## 📫 How to reach me:
-- Email: [your-email@example.com]
-- Discord: Shenshi#XXXX
-- Twitter: [@yourhandle] *(if applicable)*
-
+- Email: yagamikenji6@gmail.com
 ## 😄 Pronouns:
 - He/Him
 
